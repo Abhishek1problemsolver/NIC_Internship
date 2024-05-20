@@ -1,4 +1,4 @@
-                                                                                     NIC TRIPURA STATE CENTRE INTERNSHIP TASKS: <br>
+ NIC TRIPURA STATE CENTRE INTERNSHIP TASKS: <br>
 <br>
 <br>
 Task-1 :<br>  
